@@ -1,1 +1,0 @@
-# doktorsystem.github.io
